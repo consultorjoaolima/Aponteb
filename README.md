@@ -112,4 +112,4 @@ Recife • Pernambuco
 
 ## Desenvolvedor
 Gmail: nicollassantos.dev@gmail.com  
-[LinkedIn](https://www.linkedin.com/in/nicollas-dos-santos-bento-30b743414/)
+[LinkedIn - Nicollas Santos](https://www.linkedin.com/in/nicollas-dos-santos-bento-30b743414/)
